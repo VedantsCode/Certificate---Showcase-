@@ -1,1 +1,1 @@
-# Certificate---Showcase | Vedant Raj
+# Certificate Showcase | Vedant Raj
